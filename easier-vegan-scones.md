@@ -1,4 +1,4 @@
-Easer Vegan Scones 
+Easier Vegan Scones 
 ==================
 
 While the Easy Vegan Raisin Scones are my mom's recipe, these are my own tweak of it. I don't regularly have Earth Balance or oil to add to baking, but I always have lots of ripe bananas on hand. The "Easier" part comes from the fact that the fruit is just blended together. You can leave out the egg replacer as well, as the bananas take the place of butter/margarine/oil and eggs in function.
