@@ -24,3 +24,7 @@ Add all liquids at once to flour mixture.
 Mix really well, batter will be moist. (These scones should not need to be kneaded)
 Spread spoonfuls on an ungreased cookie sheet. Bake in hot oven 460F. for 15 minutes, until golden brown.
 Let cool 10 minutes before enjoying piping hot!
+
+Notes:
+======
+2010-03-21: May need another banana and more sugar in the future. Try sprinkling crystallized sugar on top to make them "Alterra style"
