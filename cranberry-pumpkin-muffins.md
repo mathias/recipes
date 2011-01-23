@@ -34,3 +34,5 @@ Notes:
 ======
 
 The next time I make this I will probably use 1 1/2 tbsp of molasses as it was a little strong with the full 2 tbsp.
+These aren't quite the same as Alterra's Cranberry Pumpkin muffins, which is what I was trying to duplicate.
+But, we found out they're delicious frozen and unheated, which is weird but neat.
