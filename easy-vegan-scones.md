@@ -32,4 +32,5 @@ Ingredients:
 
 Notes:
 ======
-I used vegan chocolate chips instead of raisins, and didn’t put the cinnamon in. The vegan scones are more moist, so you really don’t have to knead them, just mix well.
+The vegan scones are more moist, so you really don’t have to knead them, just mix well.
+I used vegan chocolate chips instead of raisins, and didn’t put cinnamon in.

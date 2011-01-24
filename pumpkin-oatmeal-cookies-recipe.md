@@ -5,11 +5,13 @@ Yield: About 2 dozen
 
 Equipment:
 ==========
+
 * baking sheets
 * 1 mixing bowl
 
 Ingredients:
 ============
+
 * 1 cups flour
 * 2/3 cups rolled oats
 * 1/2 teaspoon baking soda
