@@ -15,7 +15,7 @@ Ingredients:
 * 1/2 cup soymilk (or almond milk)
 * 1/2 cup vegetable oil
 * 2 tbsp molasses
-* 1 cup fresh (or frozen) cranberries
+* 1 1/4 cup dried cranberries
 
 Setup:
 ======
