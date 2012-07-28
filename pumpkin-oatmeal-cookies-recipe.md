@@ -13,7 +13,7 @@ Ingredients:
 ============
 
 * 1 cups flour
-* 2/3 cups rolled oats
+* 1/3 cups rolled oats
 * 1/2 teaspoon baking soda
 * 1/2 tsp cinnamon
 * 1/4 teaspoon nutmeg
