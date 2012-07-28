@@ -5,7 +5,7 @@ Ingredients:
 ============
 * 1 tablespoon vegetable oil
 * 1 cup chopped onion
-* 2 garlic heads, minced
+* 4 garlic cloves, minced
 * 6 cups vegetable broth
 * 2 1/2 cups (3/4-inch) cubed peeled butternut squash
 * 2 1/2 cups (3/4-inch) cubed peeled baking potato
