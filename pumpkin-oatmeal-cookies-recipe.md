@@ -21,7 +21,7 @@ Ingredients:
 * 1/3 cup canola oil (I used 1/3 cup apple sauce instead)
 * 1 tablespoons molasses
 * 1 cup canned pumpkin, or cooked pureed pumpkin
-* 1/2 teaspoon vanilla
+* 1/2 tsp almond extract
 * 1/2 cup walnuts, finely chopped
 * 1/4 cup raisins
 
