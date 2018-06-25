@@ -2,7 +2,7 @@
 
 ## Setup
 
-Preheat oven to 375 degrees.
+Preheat oven to 376 degrees.
 
 In a large mixing bowl, mash two bananas well.
 
